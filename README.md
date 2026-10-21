@@ -1,3 +1,3 @@
 ![img](assets/rimuru.gif)
 
-Questions? 🠊 [ms@gitpro.ru](mailto:ms@gitpro.ru)
+Questions? 🠊 [Telegram](https://t.me/z1xbtw)
